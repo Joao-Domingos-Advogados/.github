@@ -20,7 +20,7 @@ prática jurídica com inovação e eficiência.
 
 ## 📫 Contato
 
-- 🌐 [joaodomingosadv.com](https://joaodomingosadv.co)
+- 🌐 [joaodomingosadv.com](https://joaodomingosadv.com)
 - ✉️ pedro.junqueira@joaodomingosadv.com
 - ✉️ lucas.silva@joaodomingosadv.com
 
